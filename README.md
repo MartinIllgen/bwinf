@@ -1,0 +1,1 @@
+# Bearbeitete Aufgaben aus dem https://bwinf.de/bundeswettbewerb
